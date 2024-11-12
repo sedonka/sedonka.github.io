@@ -1,5 +1,6 @@
-Here you can say lots of fun things about your site.
+I am a freshman student at the University of the District of Columbia. 
+I have great support from my professors.
 
-Maybe say a some things about yourself.
+This will be my primary source of tracking what I accomplish and how I build upon my prior knowledge.
 
-Or maybe what you plan to blog about.
+Thank you to everyone who helped me get to where I am now.
